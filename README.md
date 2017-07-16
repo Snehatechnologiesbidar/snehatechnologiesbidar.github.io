@@ -1,1 +1,0 @@
-# snehatechnologiesbidar.github.io
